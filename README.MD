@@ -1,4 +1,4 @@
 Billy Mitchell
 OseJo Favour
 Kamryn Johnson
-Yukta 
+Yukta Malla
